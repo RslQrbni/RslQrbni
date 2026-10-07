@@ -24,6 +24,6 @@ I recently graduated with a Bachelor degree in Informatique from University of T
 * Expanding my linguistic skills.
 
 ### 📫 Let's Connect
-* **LinkedIn:** [linkedin.com/in/rslqrbni]
+* **LinkedIn:** [www.linkedin.com/in/rslqrbni]
 * **Email:** [rassoul.qorbani@gmail.com]
 * **Languages:** Persian (Native), French (B2-C1), English (B2), German and Croatian (A2) 
